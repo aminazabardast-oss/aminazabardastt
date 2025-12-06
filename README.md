@@ -1,4 +1,4 @@
-# Hello, I'm Amina Nazari  
+# Hello, I'm Aminazabardastt 
 ## Aspiring IT Specialist | Computer Networking & Database Student
 
 I'm currently studying IT and Computer Networking at **San José City College**,  
